@@ -3,4 +3,4 @@
 meu nome é izumi (não questione)
 estudante da escola joão Climaco <.,.> 
 
-https://tenor.com/pt-BR/view/kaeya-kaeya-alberich-genshin-genshin-kaeya-gif-5467361475311231539
+![](https://media1.tenor.com/m/S9_4S2KU4jMAAAAd/kaeya-kaeya-alberich.gif)
